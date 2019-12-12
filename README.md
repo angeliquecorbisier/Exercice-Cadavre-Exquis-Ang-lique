@@ -10,3 +10,5 @@ La combustion des poils dégagèrent une odeur très forte.
 Cette odeur arriva jusqu'aux narines d'une tribu primate cannibale non loin de là ...
 
 Malheureusement un énorme **Chat** passait dans les environs. La tribu cannibale est très vite devenue folle.  
+
+La tribu entama une danse avant de partir en chasse, pendant ce temps l'énorme chat a eu le temps de s'enfuir bien loin. Ils finirent par manger un membre de la tribu choisi au hasard pour combler le manque de chat.
