@@ -8,3 +8,5 @@ Cherchant alors à ne pas mourir d'hypothermie, le primate se rapprocha d'un arb
 
 La combustion des poils dégagèrent une odeur très forte.
 Cette odeur arriva jusqu'aux narines d'une tribu primate cannibale non loin de là ...
+
+Malheureusement un énorme **Chat** passait dans les environs. La tribu cannibale est très vite devenue folle.  
